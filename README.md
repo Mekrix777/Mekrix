@@ -1,2 +1,0 @@
-# Mekrix
-Prasowanie I tereso
